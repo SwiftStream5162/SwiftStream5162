@@ -1,2 +1,1 @@
-Archie is teaching me and im still cluless
-ask him
+my pronouns: U,S,A 🐱‍👓
